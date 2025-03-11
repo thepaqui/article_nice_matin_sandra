@@ -1,1 +1,37 @@
-# article_nice_matin_sandra
+# Attentat du 14-juillet 2016 à Nice: l’affaire Sandra Bertin rebondit, la policière niçoise convoquée au tribunal jeudi
+
+La policière municipale de Nice qui supervisait le dispositif des caméras de la Ville le soir du drame et qui avait dénoncé des pressions de Paris pour faire mentir les images est poursuivie en citation directe, le 13 mars 2025, par une commissaire de police.
+
+Sandra Bertin est convoquée jeudi devant le tribunal correctionnel de Nice. La policière municipale niçoise, qui supervisait la vidéosurveillance au Centre de supervision urbain (CSU) le soir de l’attentat du 14 juillet 2016, est citée à comparaître pour "dénonciation calomnieuse" par Myriam B., actuellement commissaire à Bordeaux. C’était l’un des rouages de l’affaire dans l’affaire de cet attentat qui a et continue de traumatiser Nice.
+
+C’est cette commissaire de police "envoyée par le ministère de l’Intérieur" – elle était alors numéro 3 de l’état-major à la direction centrale de la sécurité publique – que Sandra Bertin avait poursuivie en justice pour dénoncer les pressions post-attentat qu’elle avait subies.
+
+## Consignes pour modifier son rapport
+
+La policière niçoise a toujours martelé avoir été incitée à modifier son rapport sur le dispositif de sécurité de ce 14 juillet, notamment au sujet des effectifs de police, visibles ou non sur les images captées par les caméras de la Ville. Son interlocutrice, a-t-elle toujours déclaré, lui aurait aussi demandé de lui livrer une version modifiable de son rapport.
+
+## Plaintes de la cheffe du CSU classées sans suite
+
+Le 25 juillet 2016, Sandra Bertin avait signalé les faits au procureur. Le 16 juin 2017, faute de suite donnée à son signalement, elle déposait plainte pour des faits d’abus d’autorité et d’escroquerie aggravée. Une plainte classée seulement deux mois et demi après. Le lendemain, la cheffe du CSU se constituait partie civile. Et un non-lieu était prononcé en mai 2023 et confirmé en appel l’année suivante. Parallèlement, le ministre de l’Intérieur de l’époque, Bernard Cazeneuve, déposait plainte contre la policière niçoise pour diffamation publique, en son nom propre et au nom de la police nationale. Le tribunal avait relaxé Sandra Bertin en septembre 2017.
+
+## Machination politique
+
+Dans cette nouvelle procédure, l’avocat de la commissaire de police en poste à l’état-major en 2016 écrit dans sa citation directe que "Madame Sandra Bertin, bien que ne la citant pas, a accusé Myriam B. d’être une manipulatrice, d’outrepasser ses missions aux fins d’une machination politique". Et il demande "au tribunal correctionnel de bien vouloir la déclarer coupable d’avoir dénoncé des faits de nature à entraîner des sanctions judiciaires" pour sa cliente.
+
+Le nombre de policiers présents, leur emplacement, les dispositifs de sécurité le soir de l’attaque terroriste au camion bélier, au cours de laquelle 86 personnes avaient été tuées, sont toujours au cœur d’une polémique – et d’une instruction judiciaire qui aboutira, ou pas, à un procès.
+
+Depuis le drame, auquel elle avait assisté en direct, impuissante derrière les écrans du CSU, Sandra Bertin n’a jamais changé une seule virgule à son discours sur ce qui s’est passé dans les heures qui avaient suivi le carnage.
+
+### "Je tends une perche à ceux qui ont délibérément menti"
+
+>Je le vis comme je l’ai toujours vécu, dignement et avec courage, pour les victimes, pour les Niçois, pour Nice. Jusqu’à mon dernier souffle, je maintiendrai la version parue le 24 juillet 2016 dans le JDD. Je n’en ai jamais changé. On ne peut pas en dire autant de la part des agents d’État que j’ai mis en cause. La version a évolué au fil du temps. D’abord, lors de la commande du 15 juillet 2016, on me demande de décrire très précisément l’attaque en visionnant les caméras par séquence de 10 secondes, le tout sous un format modifiable. On apprendra des mois plus tard en découvrant l’audition de la principale mise en cause que finalement ce n’était pas ce qu’elle recherchait, que j’avais dû mal comprendre. Quel était donc le rôle des deux émissaires présents dans mon bureau ce jour-là, sinon de se faire son relais ? Ensuite, la principale ligne de défense a été d’indiquer l’urgence de la situation, qu’il fallait à tout prix ce rapport pour répondre à une commande attendue sans délai. L’urgence? On apprendra là encore qu’il s’agissait de faire taire une rumeur selon laquelle le camion aurait été autorisé à pénétrer dans le périmètre. Une fois que nous en étions à garder des corps sur la voie publique, il faudra que l’on m’explique en quoi cette demande était urgente.
+>
+>Également, on réfute une pression quelconque. Je rappelle tout de même que le téléphone a sonné en moyenne toutes les six minutes lors de la rédaction de mon rapport. Je précise également qu’à la suite de la transmission de ce dernier, j’ai été recontactée six fois par l’intermédiaire de l’agent dans mon bureau pour me demander d’apporter des modifications. Il est suspect, sinon idiot, de préconiser que le rapport ne comprend pas toutes les informations requises quand on se trouve à 1.000km des lieux et que l’on n’a aucunement accès aux images. Nous savons aujourd’hui que cette personne n’est pas idiote.
+>
+>Par ailleurs, le nombre des effectifs de police a lui aussi fortement évolué au fil du temps. Pendant que l’IGPN "oubliait" de mentionner la raison d’effectifs déployés en Avignon dans le cadre de son rapport [protection de François Hollande], on nous indiquait pas loin de 200 policiers nationaux présents sur site; on justifiait plus tard cela en indiquant qu’il y avait eu une mauvaise compréhension (décidément, à la Ville, nous sommes vraiment des demeurés), que les 186 policiers c’était sur une plage horaire de 24 heures. Finalement, il sera reconnu que les festivités étaient sécurisées par 36 policiers nationaux. Il ne s’agit pas là d’aller pointer du doigt le travail de la police nationale, grâce à laquelle, rappelons-le, le terroriste a été neutralisé.
+>
+>Enfin, je tiens à préciser que si, réellement, la commande de départ avait été de lever une rumeur, un simple coup de téléphone de moins de dix minutes aurait répondu à toutes les questions.
+>
+>Je rappelle que, depuis 2011, le centre d’information et de commandement de la police nationale dispose du déport de nos caméras permettant d’avoir accès au direct et à la relecture, et que, depuis 2013, un agent de la police municipale y était affecté (pour éventuellement la manipulation du logiciel). La police nationale avait donc à sa disposition immédiate la ressource pour pouvoir répondre à la commande si tant est qu’elle ait pu, ne serait-ce que l’espace d’un instant, ressembler à ce que mon interlocutrice a bien voulu énoncer par la suite. Je profite de ces quelques lignes pour de nouveau tendre une perche à ceux qui ont délibérément menti ou retenu des informations, pour leur indiquer qu’il n’est pas trop tard pour permettre la manifestation de la vérité. La situation n’est plus la même et les craintes qu’ils pouvaient avoir se sont dissipées. Ils se reconnaîtront.
+>
+>La procédure que j’avais initiée n’aura finalement pas abouti comme je l’espérais. Celle-ci s’est arrêtée au stade de l’appel. Un pourvoi en cassation aurait pu se tenir; je n’ai plus la force ni l’énergie de poursuivre ce combat. Les familles de victimes, les victimes, les Niçois ont finalement eu connaissance de la vérité, c’est tout ce qui m’importe.
